@@ -14,14 +14,14 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-A Chinese middle school student in Changsha.
+🌱A Chinese middle school student in Changsha.
 
-A postcrosser: https://www.postcrossing.com/user/MikeWu597
+📫A postcrosser: https://www.postcrossing.com/user/MikeWu597
 
-A Minecrafter: https://mc.hyp.ink/
+🎮️A Minecrafter: https://mc.hyp.ink/
 
-A blogger: https://hyp.ink/
+🗓️A blogger: https://hyp.ink/
 
-A witness: the sweet tangle between Waku and Aurora
+🤡A witness of the sweet tangle between Waku and Aurora.
 
-An international traveler who has been to HongKong(SAR), Japan
+🧳A UNESCO registered international traveler and student.
