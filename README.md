@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello 👋
 
 <!--
 **MikeWu597/MikeWu597** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+A Chinese middle school student in Changsha.
+A postcrosser: https://www.postcrossing.com/user/MikeWu597
+A Minecrafter: https://mc.hyp.ink/
+A blogger: https://space.bilibili.com/294010066
+An international traveler who has been to HongKong(SAR), Japan
