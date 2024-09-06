@@ -25,3 +25,6 @@ Here are some ideas to get you started:
 🤡A witness of the sweet tangle between Waku and Aurora.
 
 🧳A UNESCO registered international traveler and student.
+
+今证明中国版权保护中心注册账号158****6472为本人使用，以此账号提交的软件著作权登记申请为本人操作。
+It is hereby proved that the account 158**6472 registered by the China Copyright Protection Center is for my own use, and the software copyright registration application submitted by this account is operated by myself.
