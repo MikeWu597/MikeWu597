@@ -1,6 +1,6 @@
 ## Hello 👋
 
-🌱A Chinese middle school student in Changsha.
+🌱Hong Kong Polytechnic University
 
 📫A postcrosser: ins @MikeWu597
 
