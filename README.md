@@ -1,7 +1,6 @@
 ## Hello 👋
 
 - **Undergraduate** The Hong Kong Polytechnic University
-- **High School** Nanya Middle School of Changsha
 
 📫A postcrosser: ins @MikeWu597
 
