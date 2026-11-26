@@ -1,6 +1,7 @@
 ## Hello 👋
 
 - **Undergraduate** The Hong Kong Polytechnic University
+- **Exchange Student** National University of Singapore
 
 📫A postcrosser: ins @MikeWu597
 
